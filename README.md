@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ToniAnalyst
 - 👀 I’m interested in Data Analysis and Visualization
-- 🌱 
 - 💞️ I’m looking to collaborate on Analytical skills and problem solving
 - 📫 How to reach me tonizamani19@gmail.com
 - 😄 Pronouns: ...
